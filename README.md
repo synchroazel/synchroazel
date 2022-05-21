@@ -1,1 +1,1 @@
-Antonio ✌🏻 / Data Science MSc student 🌱 / in love with ML and DL 🧠
+Antonio ✌🏻 / Data Science MSc student 🌱 / ever learning machine 🧠
