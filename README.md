@@ -1,7 +1,8 @@
-Antonio ✌🏻 / 23 / Data Science MSc student 🌱 / ever learning machine 🧠
+# Hey, I'm Antonio ✌🏻
 
-Take a look at my Github Pages website [here](https://synchroazel.github.io) *!*
+23 / Data Science MSc student 🌱 / learning machine 🧠 /
 
+More about me [here](https://synchroazel.github.io) *!*
 
 <br>*«If you don't succeed at first, reduce your expectations until you're successful.»*
 <br>[Shane, Stuff Made Here](https://www.youtube.com/watch?v=WsPHBD5NsS0)
