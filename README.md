@@ -1,6 +1,6 @@
 # Hey, I'm Antonio ✌🏻
 
-/ 23 / Data Science MSc student 🌱 / learning machine 🧠 /
+/ 24 / Data Science MSc student 🌱 / learning machine 🧠 /
 
 ### More about me [here](https://synchroazel.github.io) *!*
 
